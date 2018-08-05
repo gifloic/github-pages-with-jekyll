@@ -1,3 +1,0 @@
-I am currently creating a blog post...
-Do you agree?
-From gifloic
